@@ -1,3 +1,4 @@
 # afonso.brandao.4na
 
-Amo dar aula para vocês!
+nome completo: Afonso Cesar Lelis Brandão
+RA: 000001
